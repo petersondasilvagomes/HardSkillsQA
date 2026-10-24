@@ -1,0 +1,1 @@
+O aprendizado na trilha fudamentos vem dando o entendimento que muitos passam e pulam etapas acreditando em não ser útil quando o que acontece é exatamente ter a compreensão do que é indispensável para a evolução dos estudos e práticas.
